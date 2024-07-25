@@ -1,0 +1,1 @@
+	  <font face="verdana, arial, helvetica" size="1"><b>THE BACKSTREET PROJECT TM &amp; &copy; 2000 Stan Lee Media, Inc. &amp; KBNHA Enterprises, Inc.<br> All rights reserved.</b></font>
